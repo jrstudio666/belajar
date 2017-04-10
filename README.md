@@ -1,0 +1,2 @@
+# belajar
+Mulai Belajar
